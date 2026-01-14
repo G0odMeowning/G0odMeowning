@@ -5,7 +5,7 @@ Main interests are Project moon at the moment
 <img src="https://64.media.tumblr.com/cd22f0f5a28f8163cd873d9d65031ab2/d86a3efca2dcf375-c7/s400x600/cecdfd21cc4314b1cee36bba445f7054ccbd2aef.pnj"/>
 
 
-doodles appreciated
+send me doodles on strawpage please!!
 
 <img width="96" height="96" alt="image" src="https://github.com/user-attachments/assets/ba55cc4c-2c9a-4871-bb3b-c05a6824d471" />
 
