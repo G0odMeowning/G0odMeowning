@@ -2,6 +2,8 @@
 More info in strawpage.
 Main interests are Project moon at the moment 
 
+alts: @TianqiaoStar @FloorOfReligion 
+
 Talk to me about my interests!! 
 
 <img src="https://64.media.tumblr.com/cd22f0f5a28f8163cd873d9d65031ab2/d86a3efca2dcf375-c7/s400x600/cecdfd21cc4314b1cee36bba445f7054ccbd2aef.pnj"/>
