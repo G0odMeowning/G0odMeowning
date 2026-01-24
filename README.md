@@ -1,6 +1,6 @@
 
 More info in strawpage.
-Main interests are Project moon at the moment 
+Main interests are Project moon and SCP at the moment 
 
 alts: @TianqiaoStar @FloorOfReligion 
 
