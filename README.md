@@ -7,7 +7,7 @@ When I'm using this github, I mostly go by Morning or Lei Heng
 More info in strawpage.
 Main interests are Project moon and SCP at the moment 
 
-alts: @TianqiaoStar @FloorOfReligion 
+alts in links 
 
 Talk to me about my interests!! 
 
