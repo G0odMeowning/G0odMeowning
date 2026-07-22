@@ -24,7 +24,7 @@ He/him, mostly in GTCs or with my friend
 <img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/e50e8876-6c33-4fd7-9a80-fa9b18a4cf5d" />
 
 
-i block freely
+i block freely, very freely. 
 
 Stamp by @ fleuvan on tumblr
 
